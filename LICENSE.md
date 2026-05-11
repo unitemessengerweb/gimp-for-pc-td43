@@ -1,4 +1,4 @@
-# 
+# Get the ultimate GIMP for PC | GIMP for Windows panel with elite GIMP for PC | GIMP for Windows Panel | content-aware-fill + smart-objects. Featuring content-aware-fill and
 
 
 
